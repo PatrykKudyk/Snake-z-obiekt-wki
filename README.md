@@ -1,0 +1,1 @@
+Snake, z obiektówki
